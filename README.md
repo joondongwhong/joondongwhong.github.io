@@ -1,1 +1,0 @@
-# joondongwhong.github.io
